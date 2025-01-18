@@ -1,0 +1,1 @@
+To request your account be deleted in full (all data related to your account). Please send an email to deleteme@yaystitch.com from the email associated with your account and someone from YAYstitch LLC will respond to you within 48 hours.
